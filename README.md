@@ -1,0 +1,1 @@
+# L-ks-Emlak-Yapay-Zeka-Asistan-CRM-Otomasyon-Ekosistemi
